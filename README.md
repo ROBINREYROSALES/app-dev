@@ -13,3 +13,5 @@ The movie is based on Michael Crichton's novel and follows the story of John Ham
 - **Ian Malcolm:** Chaotician played by Jeff Goldblum.
 
 *Jurassic Park* remains a cinematic masterpiece that continues to entertain and inspire audiences of all ages. Whether you're a dinosaur enthusiast or a film buff, this classic is a must-watch.
+
+My favorite movie.
